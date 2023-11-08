@@ -13,6 +13,3 @@
 ---
 ![image](https://imageproxy.ifunny.co/crop:x-20,resize:640x,quality:90x75/images/f389e36e70f3ec6d3360c5fcf756d95c2f87a0cac90a32716a3347cdd7aeb2ab_1.jpg)
 
-## Dedo no cu e gritaria 
----
-![image](http://images3.memedroid.com/images/UPLOADED120/5a565b20d77aa.jpeg)
